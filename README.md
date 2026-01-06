@@ -1,4 +1,5 @@
-# Your Name
+Marketing with conscience building with purpose🌱
+# Pratikshya Sahoo
 
 Sustainable marketer and green branding enthusiast.  
 I work at the intersection of people, planet, and purpose.
