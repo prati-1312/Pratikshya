@@ -17,6 +17,6 @@ Brands should tell honest stories and create real impact.
 (Coming soon)
 
 ## Get in Touch
-Email: prati2252gmail.com  
+Email: prati225@gmail.com  
 Instagram: prati_kshya13  
 LinkedIn: https://www.linkedin.com/in/pratikshya-sahoo-marketing/
